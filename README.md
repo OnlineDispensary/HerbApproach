@@ -1,2 +1,3 @@
-Buy Weed Online at Herb Approach. Best Online Dispensary in Canada for Mail Order Marijuana. Shop for Edibles, Concentrates, Sativa's, Indica's &amp; Hybrids
-https://pacificbudboys.com
+Lil Durk is an exclusive retailer and wholesaler for recreational cannabis and a trusted source for information about cannabis and cannabis-related issues.
+
+https://lildurk.com
